@@ -1,6 +1,6 @@
 # hello ponytown, i'm kcray/cray
 
-20 y.o, they/them (nonbinary)
+20 y.o, he/they (nonbinary)
 
 **languages:** Rus, Eng, (50/50)Esp
 
