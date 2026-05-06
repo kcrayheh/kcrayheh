@@ -1,16 +1,13 @@
-## Hi there 👋
+# hello ponytown, i'm kcray/cray
 
-<!--
-**kcrayheh/kcrayheh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+20 y.o, they/them (nonbinary)
 
-Here are some ideas to get you started:
+**languages:** Rus, Eng, (50/50)Esp
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+int:
+- c + h is encouraged, i'm looking for chat (i'm very awkward so sorry. trying my best)
+- only undertale/deltarune fandom currently
+- you can invite me to fangame projects, i'm a decent spriter
+
+dni:
+- minors dni please
